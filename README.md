@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... correios e ceemiessipe
 - 🤔 I’m looking for help with ... entrgar cartas
 - 💬 Ask me about ... cartas
-- 📫 How to reach me: ... melhor carteiro
+- 📫 How to reach me: ... @melhorcarteirorecebabill em todas as redes sociais
 - 😄 Pronouns: ... car/teiro
 - ⚡ Fun fact: ... eu sou carteiro
 -->
